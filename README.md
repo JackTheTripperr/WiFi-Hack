@@ -1,4 +1,4 @@
-# 🕵️‍♂️ How to Crack WiFi: A Method Utilizing Handshakes 📡
+# 🕵️‍♂️ How to Crack WiFi: The Handshake Method 📡
 
 ## **🛠 Tools Required**
 
